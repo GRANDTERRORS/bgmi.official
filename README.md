@@ -1,0 +1,2 @@
+# bgmi.official
+GT Squad
